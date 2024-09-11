@@ -23,3 +23,5 @@ Soy **Químico Farmacéutico** y **Magister en Ciencias-Farmacología**, actualm
 ## 🎵 [Acá puedes escuchar una de mis canciones favoritas](https://open.spotify.com/intl-es/track/3AJwUDP919kvQ9QcozQPxg?si=5c5093581eac481e)
 ---
 ⭐️ **Dato curioso**: Cuando no estoy estudiando epidemiología, puedes encontrarme subiendo una montaña en bicicleta! 🚵‍♂️
+
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR-VV3JUEHlN9IYqj9zl_DnnIC56_Ek1K0I0A&s)
